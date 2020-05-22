@@ -1,3 +1,3 @@
 # ai_modelTraining
 
-https://youtu.be/nnqBB_4UIS4
+https://youtu.be/4TO3_LeZNgc
